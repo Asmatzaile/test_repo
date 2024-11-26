@@ -1,1 +1,1 @@
-Hello, beuatiful world!
+Hello, beautiful world!
